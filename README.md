@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CharityOrganization 
-  👀 I’m interested in ...
+  👀 I’m interested in ...Nonprofit Charity Organization and Fund raising
 - 🌱 I’m currently learning ...nonprofit
 - 💞️ I’m looking to collaborate on ...everyone
 - 📫 How to reach me ...email or whatever best
